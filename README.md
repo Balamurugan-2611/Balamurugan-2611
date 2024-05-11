@@ -10,7 +10,7 @@
 
 -Feel free to reach out for collaboration or discussion!!
 <br>[<img src="https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white" />](https://www.linkedin.com/in/balamurugan-sakthivel-443080294)
-[<img src="https://img.shields.io/badge/Instagram-0077B5?style=for-the-badge&logo=instagram&logoColor=pink" >](https://www.instagram.com/.infini..freak..bms.?utm_source=qr&igsh=NjQxOWR1ZWUxbmhv)
+[<img src="https://img.shields.io/badge/Instagram-0077B5?style=for-the-badge&logo=instagram&logoColor=pink" >](https://www.instagram.com/)
 
 ---
 
